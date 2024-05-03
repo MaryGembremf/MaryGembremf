@@ -10,8 +10,8 @@
 
 ### Você entrar em contato comigo 📧
 
+-00001105623737SP@al.educacao.sp.gov.br
 
-!{}(https://media.tenor.com/g3a4ruPoTFYAAAAM/jisoo-jisoo-kim.gif)
-
+-!{}(https://media.tenor.com/g3a4ruPoTFYAAAAM/jisoo-jisoo-kim.gif)
 
 
